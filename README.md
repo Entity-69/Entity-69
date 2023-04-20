@@ -1,4 +1,4 @@
-### Hi there 👋
+### give me a minute to figure out how to do stuff 💀
 
 <!--
 **Entity-69/Entity-69** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
